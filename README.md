@@ -5,4 +5,4 @@
 - Hopefully you know that you're wasting your time reading this
 - Because if you don't you will have a long time.
 
-What am I saying? Don't take something simple serious.
+What am I saying? Don't take something simple, serious.
